@@ -48,4 +48,4 @@ Funko POP toys are more than just toys. They are a way to celebrate your favorit
 
 ## Final Thoughts
 
-The **Funko POP TV: Squid Game - Masked Worker** is a must-have for fans of Squid Game. It is fun, stylish, and well-made. Whether you are a collector or just a fan, this toy will make you happy. Start your collection today and bring home a piece of the Squid Game world!
+The **Funko POP TV: Squid Game - Masked Worker** is a must-have for fans of Squid Game. It is fun, stylish, and well-made. Whether you are a collector or just a fan, this toy will make you happy. Start your collection today and bring home a piece of the Squid Game world,
